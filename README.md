@@ -5,6 +5,7 @@
 # and why it hurts.
 ## by the same. 2024.
 
+```
 some sort of syndrome. said,
 
 
@@ -145,13 +146,13 @@ better redefined unless we really think
 it will work out to live these lies
 
 and why.
-
+```
 
 
 # computer, adore us
 ## by june elva. feb 2024.
 
-
+```
 so go it seem i daily be
 reciting my own recipe
 the best of to ability:
@@ -433,12 +434,13 @@ and would seem an appropriate reaction
 to any other injury, infection, or disease.
 your marks are in my body. the pain of shame made me.
 from your outdated hatred this world will be free.
-
+```
 
 
 # heart, garbage.
 ## by june elva. 20**.
 
+```
 ### statement.
 
 hello kind ones.
@@ -1306,3 +1308,4 @@ one brain.
 unite.
 
 #
+```
