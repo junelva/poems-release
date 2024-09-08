@@ -439,6 +439,8 @@ from your outdated hatred this world will be free.
 
 # heart, garbage.
 ## by june elva. 20**.
+([longer video here](https://www.youtube.com/watch?v=1gKljKZB0FY))
+([glitch version](https://www.youtube.com/watch?v=DwipO-y-9Ho))
 
 ```
 ### statement.
